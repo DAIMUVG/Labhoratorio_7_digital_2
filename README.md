@@ -1,1 +1,1 @@
-# Labhoratorio_7_digital_2
+# Laboratorio_7_digital_2
